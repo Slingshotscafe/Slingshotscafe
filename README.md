@@ -1,18 +1,26 @@
 ☕      ː     „    𝓢lingshot’s 𝓒afe   ”
 
+
+
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
+
 
 I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...    
 𓏴       ⃨       :              → Yakkie  ,  Koi   or   Sling! 
 
 
+
  𝙈y    pronouns    are    𝗛𝗲     ╱      𝗵𝗶𝗺       
+
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 
+
 𐃬𐃬    ﹗          𝗧𝗔𝗚𝗦         󠀩 ·        𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡                𓏵
+
 
 
        ꒰ 𝗖  +  𝗛   :  𝖣on’t be afraid to come and 𝗵𝘂𝗴 me. 𝗗o it ! <3
@@ -29,6 +37,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
+
  𓎢𓎟𓎡 𓈒      𝗗𝗡𝗜 : 
                                  𝗕asic criteria , kpop fans , pedos , Hazbin hotel ; DSMP fans . 
 
@@ -41,6 +50,8 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
  ⁞╲ ᷼  ͡  ᷼⏜     🧊 ᩙㅤ⏜᷼  ͡  ᷼ ╱⁞
 
+
+
 𐂯    .    𝒯imezone    :   GMT-3 . 𝗠ostly active in the 𝗮𝗳𝘁𝗲𝗿𝗻𝗼𝗼𝗻 !
 
 ❄️      ㅤꓺ        𝑆tatus 
@@ -52,3 +63,6 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 ꒰꒰ㅤׅㅤ🐈‍⬛ㅤ۫ㅤ::      𝗧𝗪      .      ♡
 
 𝗡one listed   ╱   ask if unsure !!
+
+
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
