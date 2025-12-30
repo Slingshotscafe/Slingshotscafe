@@ -32,7 +32,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
        ꒰ 𝗢𝗙𝗙 𝗧𝗔𝗕    : 𝖨’m mostly not watching the game so I might respond sloooowly ...
 
-       ꒰ 𝗗𝗡𝗖    : 𝖯lease don’t copy my skins ! All are 𝗢𝗥𝗚 . 𝗜𝗻𝘀𝗽𝗶𝗿𝗮𝘁𝗶𝗼𝗻𝘀 𝗼𝗻𝗹𝘆
+       ꒰ 𝗗𝗡𝗖    : 𝖯lease don’t copy my skins ! All are 𝗢𝗥𝗚 . 𝗜𝗻𝘀𝗽𝗶𝗿𝗮𝘁𝗶𝗼𝗻𝘀 ❌ . 
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
@@ -61,7 +61,12 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 ⃞🐾        𝓘NTERACTION 𝓢TYLE:
 -   I may be quiet at first .
--   I warm up slowly ! 
+-   I warm up slowly !
+
+⃞🐾        𝓓ISCOMFORTS :
+-   Agressive or short-tempered behavior . 
+-   Sensitive topics without asking first . 
+-   Sexual or suggestives actions towards my pony . 
 
 ꒰꛱ ͜  ꛱|꛱ ꛱͜  |꛱  ꛱͜ |꛱  ͜ |  ꒰  🌸  ꒱  |꛱ ꛱͜  |꛱ ͜ ꛱ |꛱ ꛱͜  |꛱ ͜  ꒱
 
