@@ -28,7 +28,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
        ꒰ 𝗪𝟮𝗜    :  𝖨 prefer always to speak in 𝘄𝗵𝗶𝘀𝗽𝗲𝗿, please ! 
 
        ꒰ 𝗜𝗪𝗖  :  𝖯lease be respectful and keep interactions comfortable !
-       𝗡𝗢 overly familiar or invasive comments .
+       𝗡𝗢 overly familiar or invasive comments : 𝗜𝗳 𝘆𝗼𝘂 𝗺𝗮𝗸𝗲 𝗺𝗲 𝗳𝗲𝗲𝗹 𝘂𝗻𝗰𝗼𝗺𝗳𝗼𝗿𝘁𝗮𝗯𝗹𝗲 𝗜’𝗹𝗹 𝗶𝗴𝗻𝗼𝗿𝗲 𝘆𝗼𝘂 . 
 
        ꒰ 𝗢𝗙𝗙 𝗧𝗔𝗕    : 𝖨’m mostly not watching the game so I might respond sloooowly ...
 
@@ -45,16 +45,22 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
                                  𝗣HIGHTING ! , Regretevator , OSC , Dandy’s World , Evade , Happy Tree Friends , Eddsworld , Madness Combat , Five Nights At Freddy's , South Park . 
 
 𓎢𓎟𓎡 𓈒       𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦 : 
-                                 𝗖ats , music (𝗵𝗮𝗿𝗱𝗰𝗼𝗿𝗲 𝗻 𝗲𝗹𝗲𝗰𝘁𝗿𝗼𝗻𝗶𝗰) , S3RL , Destroy boys , FIDLAR , IAMX , drawing , skateboarding .
+                                 𝗖ats , catepillars , music (𝗵𝗮𝗽𝗽𝘆 𝗵𝗮𝗿𝗱𝗰𝗼𝗿𝗲 𝗻 𝗲𝗹𝗲𝗰𝘁𝗿𝗼𝗻𝗶𝗰) , S3RL , Destroy boys , FIDLAR , IAMX , drawing , skateboarding .
+
+𓎢𓎟𓎡 𓈒       𝗭𝗢𝗡𝗘𝗦 : 
+                                  𝗠ostly found around Roblox / Dandy's world zones ! 
+
+ ⁞       ╲ ᷼  ͡  ᷼⏜     ☕ ᩙㅤ⏜᷼  ͡  ᷼ ╱⁞
 
 
- ⁞╲ ᷼  ͡  ᷼⏜     🧊 ᩙㅤ⏜᷼  ͡  ᷼ ╱⁞
-
+⃞🐾         𝗔𝗕𝗧 𝓘NTERACTIONS:
+——      i prefer calm conversations .
+——   please be patient with replies .
 
 
 𐂯    .    𝒯imezone    :   GMT-3 . 𝗠ostly active in the 𝗮𝗳𝘁𝗲𝗿𝗻𝗼𝗼𝗻 !
 
-❄️      ㅤꓺ        𝑆tatus 
+🍪      ㅤꓺ        𝑆tatus 
 
                   𝖲itting    →   Semi 𝗔𝗙𝗞  ╱  can be active
                   𝐿ying down   →  𝗔𝗙𝗞  ╱  𝗡𝗼𝘁 𝗮𝘃𝗮𝗶𝗹𝗮𝗯𝗹𝗲
