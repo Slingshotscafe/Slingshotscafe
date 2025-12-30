@@ -54,13 +54,20 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 
 ⃞🐾         𝗔𝗕𝗧 𝓘NTERACTIONS:
-——      i prefer calm conversations .
-——   please be patient with replies .
 
+—      I prefer calm conversations .
+—   Please be patient with replies .
+
+
+⃞🐾        𝓘NTERACTION 𝓢TYLE:
+-   I may be quiet at first .
+-   I warm up slowly please be patient ! 
+
+꒰꛱ ͜  ꛱|꛱ ꛱͜  |꛱  ꛱͜ |꛱  ͜ |  ꒰  🌸  ꒱  |꛱ ꛱͜  |꛱ ͜ ꛱ |꛱ ꛱͜  |꛱ ͜  ꒱
 
 𐂯    .    𝒯imezone    :   GMT-3 . 𝗠ostly active in the 𝗮𝗳𝘁𝗲𝗿𝗻𝗼𝗼𝗻 !
 
-🍪      ㅤꓺ        𝑆tatus 
+🎋      ㅤꓺ        𝑆tatus 
 
                   𝖲itting    →   Semi 𝗔𝗙𝗞  ╱  can be active
                   𝐿ying down   →  𝗔𝗙𝗞  ╱  𝗡𝗼𝘁 𝗮𝘃𝗮𝗶𝗹𝗮𝗯𝗹𝗲
@@ -72,3 +79,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
+⾐ ﹒ ﹒ ﹒ 𝗣𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗸𝗶𝗻𝗱 𝗻 𝘁𝗵𝗮𝗻𝗸 𝘂 𝟰 𝗿𝗲𝗮𝗱𝗶𝗻𝗴 ﹒ ♡
+and feel free to sit nearby ofccc!1! 
+
