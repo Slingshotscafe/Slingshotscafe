@@ -55,7 +55,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 ⃞🐾         𝗔𝗕𝗧 𝓘NTERACTIONS:
 
-—      I prefer calm conversations .
+—   I prefer calm conversations .
 —   Please be patient with replies .
 
 
