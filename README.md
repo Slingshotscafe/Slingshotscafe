@@ -61,7 +61,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 
 ⃞🐾        𝓘NTERACTION 𝓢TYLE:
 -   I may be quiet at first .
--   I warm up slowly please be patient ! 
+-   I warm up slowly ! 
 
 ꒰꛱ ͜  ꛱|꛱ ꛱͜  |꛱  ꛱͜ |꛱  ͜ |  ꒰  🌸  ꒱  |꛱ ꛱͜  |꛱ ͜ ꛱ |꛱ ꛱͜  |꛱ ͜  ꒱
 
