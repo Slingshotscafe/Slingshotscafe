@@ -1,6 +1,4 @@
-<p align="center">
-  <img src="165%20sin%20título_Restaurado_2025.png" />
-</p>
+![banner](165%20sin%20título_Restaurado_2025.png)
 
 
 ☕      ː     „    𝓢lingshot’s 𝓒afe   ”
