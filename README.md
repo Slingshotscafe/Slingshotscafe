@@ -47,7 +47,7 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
                                  𝗕asic criteria , kpop fans , pedos , Hazbin hotel ; DSMP fans . 
 
 𓎢𓎟𓎡 𓈒       𝗙𝗔𝗡𝗗𝗢𝗠𝗦 :
-                                 𝗣HIGHTING ! , Regretevator , OSC , Dandy’s World , Evade , Happy Tree Friends , Eddsworld , Madness Combat , Five Nights At Freddy's , South Park , Hell Park , WBNS . 
+                                 𝗣HIGHTING ! , Regretevator , OSC , Dandy’s World , Evade , Happy Tree Friends , Eddsworld , Madness Combat , Five Nights At Freddy's , South Park , Hell Park , WBNS , Backrooms . 
 
 𓎢𓎟𓎡 𓈒       𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦 : 
                                  𝗖ats , catepillars , music (happy hardcore , J-core n punk) , S3RL , Destroy boys , FIDLAR , IAMX , drawing , skateboarding .
@@ -91,5 +91,4 @@ I'm    𝗘𝗶𝗸𝗼   !   𝗢r   call    me...
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 ⾐ ﹒ ﹒ ﹒ 𝗣𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗸𝗶𝗻𝗱 𝗻 𝘁𝗵𝗮𝗻𝗸 𝘂 𝟰 𝗿𝗲𝗮𝗱𝗶𝗻𝗴 ﹒ ♡
-and feel free to sit nearby ofccc!1! 
-
+and feel free to sit nearby ! 
