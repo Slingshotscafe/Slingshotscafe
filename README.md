@@ -4,7 +4,7 @@
 
 
 <p align="left">
-<a href="https://y4k.strawpage/">
+<a href="https://y4k.straw.page/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="500">
 
 
