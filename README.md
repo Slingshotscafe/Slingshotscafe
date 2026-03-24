@@ -4,4 +4,4 @@
 
 <p align="center">
 <a href="https://y4k.strawpage/">
-<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="700">
+<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="500">
