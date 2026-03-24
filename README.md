@@ -5,16 +5,16 @@
 
 <p align="left">
 <a href="https://y4k.straw.page/">
-<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="500">
+<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="450">
 
 
 <p align="right">
 <a href="https://itzyakkie.atabook.org/">
-<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Atabook.png?raw=true" width="500">
+<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Atabook.png?raw=true" width="450">
 
 
 <p align="left">
-<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/PTinfo.png?raw=true" width="500">
+<img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/PTinfo.png?raw=true" width="450">
 
 
 <p align="center">
