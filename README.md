@@ -1,21 +1,24 @@
 <p align="center">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/bannermain.png?raw=true" width="900">
 </p>
-
+<br><br>
 
 <p align="left">
 <a href="https://y4k.straw.page/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="450">
-
+</a>
+<br><br>
 
 <p align="right">
 <a href="https://itzyakkie.atabook.org/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Atabook.png?raw=true" width="450">
-
+</a>
+<br><br>
 
 <p align="left">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/PTinfo.png?raw=true" width="450">
-
+<br><br>
 
 <p align="center">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/bannersec.png?raw=true" witdh="900">
+</p>
