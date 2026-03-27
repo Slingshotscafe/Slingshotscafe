@@ -7,16 +7,21 @@
 <a href="https://y4k.straw.page/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Strawpage.png?raw=true" width="450">
 </a>
+</p>
 <br><br>
 
 <p align="right">
 <a href="https://itzyakkie.atabook.org/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/Atabook.png?raw=true" width="450">
 </a>
+</p>
 <br><br>
 
 <p align="left">
+<a href="https://unfinish11.straw.page/">
 <img src="https://github.com/Slingshotscafe/Slingshotscafe/blob/main/PTinfo.png?raw=true" width="450">
+</a>
+</p>
 <br><br>
 
 <p align="center">
