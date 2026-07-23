@@ -13,14 +13,14 @@
 <img src="sstrawpage.png" width="450">
 </a>
 </p>
-<br><br>
+<br>
 
 <p align="right">
 <a href="https://itzyakkie.atabook.org/">
 <img src="aatabook.png" width="450">
 </a>
 </p>
-<br><br>
+<br>
 
 <p align="left">
 <a href="https://slingirlfrfr.straw.page/">
