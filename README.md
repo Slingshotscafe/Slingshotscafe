@@ -13,14 +13,12 @@
 <img src="sstrawpage.png" width="450">
 </a>
 </p>
-<br>
 
 <p align="right">
 <a href="https://itzyakkie.atabook.org/">
 <img src="aatabook.png" width="450">
 </a>
 </p>
-<br>
 
 <p align="left">
 <a href="https://slingirlfrfr.straw.page/">
@@ -30,7 +28,7 @@
 <br><br>
 
 <p align="center">
-<img src="mostrador.png" witdh="900">
+<img src="mostrador.png" width="900">
 </p>
 
 <p align="center">
